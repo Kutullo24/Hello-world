@@ -1,2 +1,1 @@
-# Hello-world
-Ideas Hub
+I am a very ambitious young man, with a big heart. I am constantly looking for ways to build and improve my character, I am kind, patient, resilient and most importantly humble. I work well with others and I pay attention to every detail.
